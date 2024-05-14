@@ -29,7 +29,9 @@ I am a passionate M.Tech CS student at IIT Kharagpur, driven by a curiosity for 
 
 ## 📬 Get in Touch
 
-- Connect with me on [Twitter]([https://twitter.com/introvertedbot](https://twitter.com/AHMEDME63458382))
+- Connect with me on [Twitter](https://twitter.com/AHMEDME63458382)
+
+
 
 Thanks for stopping by! Let's connect and explore the fascinating world of technology together. 🚀
 
